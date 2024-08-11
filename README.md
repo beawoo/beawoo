@@ -1,5 +1,4 @@
 
-![killuaPop](https://github.com/user-attachments/assets/606a20aa-6a55-4882-9f98-b0521ccf19a8)
 
 
 <!---
